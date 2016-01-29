@@ -1,3 +1,3 @@
 # Origin
-Original postings
+Original posting
 Making some additions.
